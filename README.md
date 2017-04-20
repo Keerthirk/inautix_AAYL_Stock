@@ -1,0 +1,1 @@
+# inautix_AAYL_Stock
